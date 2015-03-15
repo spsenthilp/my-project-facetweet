@@ -1,0 +1,1 @@
+By single post we can post and tweet in twitter and face book
